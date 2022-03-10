@@ -1,2 +1,2 @@
-# TnC
-Terms and Condition
+# Terms and Conditions
+Terms and Conditions
